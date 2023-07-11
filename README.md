@@ -4,5 +4,5 @@ Our team was motivated to develop a more reliable and efficient way to clear tra
 
 LINK to the work:
 
-https://drive.google.com/file/d/1XOX4- 2wu2vnnp40FWLvcvDy_oXh7AjYE/view? usp=share_link
+https://drive.google.com/file/d/1XOX4-2wu2vnnp40FWLvcvDy_oXh7AjYE/view?usp=share_link
 
